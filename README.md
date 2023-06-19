@@ -11,4 +11,4 @@ I have high skills in the field of red and blue team and I have a high work expe
 
 I also work in the field of artificial intelligence.
 
-![PantaloneBanner](https://github.com/ThePantalone/ThePantalone/assets/136220691/befe77eb-9b9a-4a04-a0c5-8e230b8760e0)
+![ThePantalone](https://github.com/ThePantalone/ThePantalone/assets/136220691/0869c38a-fa70-4ea7-9832-9bdc7bb29c9e)
